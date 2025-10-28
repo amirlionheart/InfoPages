@@ -6,3 +6,5 @@
 ## Контакты
 - [Email:](amirchegerchiev@gmail.com)
 - [Github:](https://github.com/amirlionheart)
+
+![](https://i.pinimg.com/736x/7f/81/aa/7f81aafc8519b88858c01952840453d2.jpg)
